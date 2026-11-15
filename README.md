@@ -18,6 +18,8 @@ My favorite character is **Shadow (Cid Kagenou)** because he is powerful, intell
 - Great animation
 - Shadow's mysterious personality
 
+![Uploading wallpapersden.com_the-eminence-in-shadow-hd_3830x2154.jpg…]()
+
 ## My Favorite Things
 1. Shadow's abilities
 2. His secret identity
