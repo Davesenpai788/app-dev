@@ -8,7 +8,7 @@
 ## My Favorite Character
 
 ### Shadow
-
+![Shadow - The Eminence in Shadow](wallpapersden.com_the-eminence-in-shadow-hd_3830x2154.jpg)
 My favorite character is **Shadow (Cid Kagenou)** because he is powerful, intelligent, mysterious, and always stays calm.
 
 ## Why I Like This Anime
